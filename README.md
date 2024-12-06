@@ -1,4 +1,10 @@
-                              ___,pggggpggpggg,__                               
+Please consider purchasing *something* from amazon after clicking my affiliate links below. I receive a commission for the total checkout amount if you place your order within the same session of clicking the link (even if you don't get the JST connectors) :D
+
+2- 4-pin: https://amzn.to/4gjC7y0
+5-7 pin: https://amzn.to/3OGJELp
+
+
+			      ___,pggggpggpggg,__                               
                         _ggg000000000000000000000000gg,_                        
                    _pg000000000000"^^       ^^"0000000000Mg,_                   
                 ,g000000M000000000&g_M00M000_,N00000000M000000g_                
